@@ -1,4 +1,4 @@
-
+Enhance your Mullvad experience with instant Mullvad Module | 24/7-support + VPN-over-TOR, the #1 module. Includes 24/7-support and VPN-over-TOR for a safer and more private
 
 
 
